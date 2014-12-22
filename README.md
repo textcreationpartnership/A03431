@@ -35,7 +35,7 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-A mirrour ofloue, which such light doth giue,That all men may learne,howe to loue and liue.Compiled 
+
 1. To the moste high and most vertuous ladie, and our most gracious soueraigne, Mary by the grace of God, Quene of Englande, Fraunce, Naples, Hierusalem, and Irelande, defendour of the fayth, Princesse of Spaigne & Sicilie, Archeduchesse of Austria, Duchesse of Millaine, Burgundie and Brabant, Countesse of Haspurge, Flaunders and Tyrole. Your Maiesties most faythful, louyng and obedient seruaunt Miles Hogarde, wissheth al grace, long peace, quiet raigne, from God the father, the sonne, and the holy Ghost.
 
 1. To the Reader.
